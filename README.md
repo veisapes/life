@@ -18,7 +18,7 @@ Most hostesses don't consider this an essential item - and for good reason. Reme
 
 ## Gadget 3: Kitchen Scale
 
-![Branching](veisapes3.jpg)
+![Branching](veisapes3.jpeg)
 
 Kitchen scales are not only a paradise for pastry chefs, but also for people who calculate the nutritional intake and are committed to proper nutrition. It can be both an ordinary device and one with an additional set of functions. For example, some gadgets are able to remember the weight of the product, calculate the volume of liquid, weigh products without regard to the weight of the bowl (tarocompensation) and so on. But weighing everything "by eye" is a bad idea in advance. The cakes may turn out to be clogged because you've gone overboard with the flour, and the portion of rice is more calorie-dense, as you'll eat 180 grams instead of 100 grams.
 
